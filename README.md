@@ -1,1 +1,0 @@
-# Ilha-Dinamica-Bardi
